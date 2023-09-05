@@ -1,4 +1,4 @@
-# sarahweb3profile
+# sarahweb3profiles
 - 0xsarah (1).jpg
 - 0xsarah (2).jpg
 - 0xsarah (3).jpg
