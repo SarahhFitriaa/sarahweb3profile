@@ -1,4 +1,4 @@
-# sarah web3 profile pictures
+# sarah web3 profiles pictures
 - 0xsarah (1).jpg
 - 0xsarah (2).jpg
 - 0xsarah (3).jpg
